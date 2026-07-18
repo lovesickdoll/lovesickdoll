@@ -1,7 +1,4 @@
-<h1 align="center">Hi 👋, I'm nana</h1>
-<h3 align="center">A passionate frontend developer from India</h3>
-
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">  ۫ stαy ݂   ۫ωith    ༷me   ꒰ 𓈒◞  ◟𓈒ྀི ꒱`♡`</h3>
 <p align="left">
 </p>
 
