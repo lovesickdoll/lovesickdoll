@@ -9,5 +9,5 @@
 ${\text{\color{#BB95DA} ιnterαct \color{#8C68AC}﹒♡ \color{#4F4F7D}  ۫   ꒰  ωιth  ꒱   \color{#302E51}   cαre ݁
 }}$</sub> </p>
 
-<p align=center> </sub>${\text{\color{#E2E3ED} w6nyoung on dc :3 }}$</sub> </p>
+<p align=center> </sub>${\text{\color{#D4D5E2} w6nyoung on dis⑅cord }}$</sub> </p>
 <sub> <p align=center> 
