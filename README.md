@@ -12,4 +12,5 @@ ${\text{\color{#BB95DA} ιnterαct \color{#8C68AC}﹒♡ \color{#4F4F7D}  ۫   �
 
 <p align=center> </sub>${\text{\color{#D4D5E2} w6nyoung on dis⑅cord }}$</sub> </p>
 <sub> <p align=center> 
-![div](https://github.com/lovesickdoll/lovesickdoll/blob/193451f74d0b59e726ea8b882406b8b6f88180b3/p3lr71.png)
+
+![divv](https://github.com/lovesickdoll/lovesickdoll/blob/193451f74d0b59e726ea8b882406b8b6f88180b3/p3lr71.png)
