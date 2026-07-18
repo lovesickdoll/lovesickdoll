@@ -1,3 +1,4 @@
 <p align="center">
-      ۫ stαy ݂   ۫ωith    ༷me   ꒰ 𓈒◞  ◟𓈒ྀི ꒱♡
+          ༷    ꒰𓈒     ݂ ۫m𝑦   ۪ 𝓈wee𝑡    ཾ  ♡   ݂   ⊹
+      
 </p>
