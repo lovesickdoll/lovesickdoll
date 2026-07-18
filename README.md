@@ -1,5 +1,5 @@
 <p align=center>
-</sub>${\text{\color{#C872A4} ˖    —    ۫ hi𝓈  \color{#EB95BA}˳hιme   \color{#EBB5C6} ݂princes𝓈 ۪  ۫ ⊹   }}$</sub> </p>
+</sub>${\text{\color{#57415C} ˖    —    ۫ hi𝓈  \color{#876F8B}˳hιme   \color{#E2E3ED} ݂princes𝓈 ۪  ۫ ⊹   }}$</sub> </p>
 
 
 <sub> ![me](Untitled51_20260718122858.png)
