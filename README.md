@@ -4,7 +4,7 @@
  </sub> </p>
  
 <p align=center>
-</sub>${\text{\color{#2F5C9A} ˖    —    ۫ hi𝓈  \color{#5987B7}˳hιme   \color{#CED3D2} ݂princes𝓈 ۪  ۫ ⊹   }}$</sub> </p>
+</sub>${\text{\color{#80B2D9} ˖    —    ۫ hi𝓈  \color{#9BBED7}˳hιme   \color{#C3CED3} ݂princes𝓈 ۪  ۫ ⊹   }}$</sub> </p>
 
 <p align=center> <a href="https://angelfox.atabook.org/">书ata</a> ⑅ <a href="https://rentry.co/softbunie">rentry ♡</a>
 
