@@ -17,7 +17,8 @@ ${\text{\color{#DAD8D1} ιnterαct \color{#DAD8D1}﹒♡ \color{#BFCDD3}  ۫   �
 <p align=center>
 </sub>${\text{\color{#80B2D9} w6nyoung \color{#9BBED7} on   \color{#C3CED3} dis⁠⑅cord  }}$</sub> </p>
 
-<sub> <p align=center> ![Static Badge](https://img.shields.io/badge/c%2Bh%20-EBDFCF) ![Static Badge](https://img.shields.io/badge/is%20always-CCD2D2) ![Static Badge](https://img.shields.io/badge/encouraged%20!-92BAD8)
+<sub> <p align=center> ![Static Badge](https://img.shields.io/badge/c%2Bh-FFFFFF)
+ ![Static Badge](https://img.shields.io/badge/is%20always-CCD2D2) ![Static Badge](https://img.shields.io/badge/encouraged%20!-92BAD8)
 
 
 ![divv](https://github.com/lovesickdoll/lovesickdoll/blob/193451f74d0b59e726ea8b882406b8b6f88180b3/p3lr71.png)
